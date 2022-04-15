@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aarov7
 - 👀 I’m interested in ur mom
 - 🌱 I’m currently learning to do ur mom
-- 💞️ I’m looking to collaborate on ur mom
+- 💞️ I’m looking to collaborate with ur mom
 - 📫 How to reach me: ask ur mom
 
 <!---

@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @aarov7
-- 👀 I’m interested in ur mom
-- 🌱 I’m currently learning to do ur mom
-- 💞️ I’m looking to collaborate with ur mom
-- 📫 How to reach me: ask ur mom
+- 👀 I’m interested in your mom
+- 🌱 I’m currently learning to do your mom
+- 💞️ I’m looking to collaborate with your mom
+- 📫 How to reach me: ask your mom
 
 <!---
 aarov7/aarov7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
